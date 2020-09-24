@@ -1,1 +1,1 @@
-![maxresdefault](https://www.windowscentral.com/uk/best-computer-desks)
+![windowscentral](https://www.windowscentral.com/uk/best-computer-desks)
